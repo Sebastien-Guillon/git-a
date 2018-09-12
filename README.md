@@ -9,8 +9,9 @@
 <<<<<<< HEAD
 
 
-Salut git-a!!!
+Salut git-a!!! Dima
 chantal maitresse suprême!
+emilie: voyons chantal ! et la langue française bon sang!
 arreter de me couper la route!!!!
 
 
@@ -18,15 +19,21 @@ arreter de me couper la route!!!!
 >>>>>>> 04fdb94153a5bb82ac018503ff21884d1c31c23d
 
 Salut git-a!!!
-=======
 
 * Irina Planchenault
 Salut git-a!!! 
 Pas de salut!! on dit bonjour !!
+
+
+
+Pas de salut!! on dit bonjour !!
+
+
 Pas de salut!! on dit bonjour !!
 Pas de salut!! on dit bonjour !!
 Pas de salut!! on dit bonjour !!
-Pas de salut!! on dit bonjour !!
+
+
 
 
 
