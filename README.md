@@ -3,5 +3,6 @@
 ## Contributeurs
 
 * Sébastien Guillon.
+* Stevie B
 
 Salut git-a!!!
