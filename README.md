@@ -3,5 +3,6 @@
 ## Contributeurs
 
 * Sébastien Guillon.
+* Kinereth Fitoussi
 
 Salut git-a!!!
