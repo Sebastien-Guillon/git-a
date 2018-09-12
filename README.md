@@ -53,3 +53,6 @@ coucou la famille je nique tout moi, je suis un fou dans ma tete
 
 
 emilie pue des pieds
+
+
+Le POUVOIR AU HOMME, LES FEMMES SONT SOUMISES
