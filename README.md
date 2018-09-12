@@ -3,5 +3,10 @@
 ## Contributeurs
 
 * Sébastien Guillon.
-
-Salut git-a!!!
+* Irina Planchenault
+Salut git-a!!! 
+Pas de salut!! on dit bonjour !!
+Pas de salut!! on dit bonjour !!
+Pas de salut!! on dit bonjour !!
+Pas de salut!! on dit bonjour !!
+Pas de salut!! on dit bonjour !!
