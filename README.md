@@ -54,4 +54,9 @@ coucou la famille je nique tout moi, je suis un fou dans ma tete
 
 emilie pue des pieds
 
+<<<<<<< HEAD
 j'ai un gros zizi !!! 
+=======
+
+Le POUVOIR AU HOMME, LES FEMMES SONT SOUMISES
+>>>>>>> 1e9308e6bb92c77e196c5742d81b3b311b734edd
