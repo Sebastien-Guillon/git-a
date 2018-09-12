@@ -4,6 +4,12 @@
 
 * Sébastien Guillon.
 
+blablabla 
+
+lalalalalalal
+lililili
+
+
 * Stevie B
 
 
@@ -46,4 +52,24 @@ Pas de salut!! on dit bonjour !!
 
 
 
+coucou la famille je nique tout moi, je suis un fou dans ma tete
 
+
+
+
+
+ coucou noicoa
+
+
+ coucou noicoa
+
+
+
+
+emilie pue des pieds
+
+
+j'ai un gros zizi !!! 
+
+
+Le POUVOIR AUX FEMMES!!!! NICO EST NUL!
